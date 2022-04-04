@@ -6,4 +6,5 @@ I am interested in Computer Science and love to program whenever I have the time
 
 # Contact
 If you need to contact me you can do it through:
-- [Twitter](https://twitter.com/NighthawkBusin1)
+- [Twitter](https://twitter.com/Nighthawk149149)
+- [Email](nickstienz@gmail.com)
